@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with rare anime card clash Scripts, the #1 Script. Includes auto-farm and unlimited stamina for
 
 
 
